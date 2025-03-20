@@ -18,4 +18,5 @@
 - i forget words in english and use spanish words instead so my sentences might be spanglish i thought it was called
 # other stuff that I NEED for people to know
 si eres amigo de cuack/daniel raja de mi pinche github y sal de mis paginas te odiom ojala te mueras explota ahora mismo dile a daniel que se mateporfavor [i knowthats on spanish i just hate this guy so much]
+
 thats all..
